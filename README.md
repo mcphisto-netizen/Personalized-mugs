@@ -1,4 +1,4 @@
-**Title:** Free customizable mug design files for personalized gifts - Sublimation ready (CDR + SVG)
+Free customizable mug design files for personalized gifts - Sublimation ready (CDR + SVG)
 
 I wanted to share something I created a few years ago that might help those of you struggling with gift ideas. I designed some minimalist mugs that feature a cartoon-style mouth or smile on the left side and a person's name on the right side in a modern handwritten font. The idea is that when the person holds the mug with their right hand and brings it to their mouth, the cartoon smile aligns with their face, creating a fun effect while the personalized name is visible from the front.
 
