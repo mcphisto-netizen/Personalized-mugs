@@ -14,5 +14,3 @@ I'm sharing these design files completely free for anyone who wants to use them.
 4. Print on a standard white ceramic mug
 
 This is perfect for birthdays, holidays, or just thoughtful personalized gifts. The designs are minimalist and work well on plain white mugs.
-
-Feel free to ask if you have any questions about the files or the printing process!
