@@ -1,4 +1,4 @@
-![Mockup Preview](mockup.jpg)
+![Mockup Preview](Mockup.jpg)
 
 Free customizable mug design files for personalized gifts - Sublimation ready (CDR + SVG)
 
